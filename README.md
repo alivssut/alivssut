@@ -1,4 +1,4 @@
-### Ali Vasisari 👋
+### Ali Vasisari
 
 <p align="center">
   <a href="https://skillicons.dev">
