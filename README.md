@@ -6,4 +6,4 @@
   </a>
 </p>
 
-[Telegram](https://t.me/Alivasisari) or [Email](mailto:alivasisari1380@gmail.com)
+[Telegram](https://t.me/Alivasisari)  [Email](mailto:alivasisari1380@gmail.com)
